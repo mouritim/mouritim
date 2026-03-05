@@ -1,12 +1,16 @@
 ## Hi there 👋
-Mein Name is temmouri ahmed. Ich komme aus Marokko und habe früh erkannt, dass die Pflege meine Berufung ist – durch die Begleitung älterer Familienmitglieder und mein Praktikum als pflegehelfer.
+Mein Name is temmouri ahmed.ich bin 27 Jahre alt und französischer Staatsbürger. ich habe früh erkannt, dass die Pflege meine Berufung ist – durch die Begleitung älterer Familienmitglieder und mein Praktikum als pflegehelfer.
 
 Das deutsche Gesundheitssystem begeistert mich durch seine hohen Standards. Die generalistische Ausbildung bietet mir die ideale Grundlage für eine vielseitige Karriere.
 
 Ich bringe interkulturelle Kompetenz, Mehrsprachigkeit und echtes Einfühlungsvermögen mit – täglich eingesetzt in der Arbeit mit Patientinnen und Patienten.
 
-🤍 Empathie
-<!--
+<!--🤍 Empathie
+✅ Zuverlässigkeit
+👥 Teamfähigkeit
+⚡ Schnelle Auffassung
+🌍 Interkulturell
+📋 Dokumentation
 **mouritim/mouritim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
