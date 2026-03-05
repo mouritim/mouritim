@@ -4,6 +4,8 @@ Mein Name is temmouri ahmed.ich bin 27 Jahre alt und französischer Staatsbürge
 Das deutsche Gesundheitssystem begeistert mich durch seine hohen Standards. Die generalistische Ausbildung bietet mir die ideale Grundlage für eine vielseitige Karriere.
 
 Ich bringe interkulturelle Kompetenz, Mehrsprachigkeit und echtes Einfühlungsvermögen mit – täglich eingesetzt in der Arbeit mit Patientinnen und Patienten.
+
+
 🤍 Empathie ✅ Zuverlässigkeit 👥 Teamfähigkeit ⚡ Schnelle Auffassung 
 🌍 Interkulturell 📋 Dokumentation
 
